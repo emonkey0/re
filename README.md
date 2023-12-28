@@ -1,3 +1,3 @@
-# For educational purposes.
+# Recursos.
 
-![Chambeando...](https://github.com/emonkey0/Checker/blob/main/readme/makimamiamor.gif)
+![Chambeando...](hhttps://github.com/emonkey0/re/blob/main/readme/integerr.jpg)
